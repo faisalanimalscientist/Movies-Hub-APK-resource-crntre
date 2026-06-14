@@ -78,4 +78,10 @@ https://movieshubonline.com/2026/06/02/movies-hub-apk-vs-cinema-hd-which-streami
 ## Disclaimer
 
 This repository is intended for informational and educational purposes only. Users should always review compatibility requirements, installation instructions, and applicable policies before installing any application.
+## Featured Resource
 
+### Movies Hub APK Download Guide
+
+Learn about installation, Android compatibility, updates, troubleshooting, and version information.
+
+https://movieshubonline.com/movies-hub-apk-download-latest-version-for-android/
